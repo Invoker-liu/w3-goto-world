@@ -16,6 +16,7 @@
 * [知乎 - 为什么招聘都不要 35 岁以上的？](https://www.zhihu.com/question/614315545)
 * [BILIBILI - 讨厌一个人最好的方法，不是翻脸，而是降熵](https://www.bilibili.com/video/BV1ePSxBJEAm)
 * [BILIBILI - 顶级高手从不刻苦，他们只做「低内阻学习」](https://www.bilibili.com/video/BV1m7zEBcEv5)
+* [BILIBILI - 如果你的投资有这 3 个特征，请拔腿就跑](https://www.bilibili.com/video/BV1arr4BeEV8)
 
 ---
 
