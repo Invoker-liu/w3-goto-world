@@ -1,3 +1,4 @@
+* [BILIBILI - 重思胡适：第一反诈大师（任剑涛）](https://www.bilibili.com/video/BV1bH67BYEvG)
 * [人生开窍太晚，会出现什么结果？ - 胃窦Elaine的回答 - 知乎](https://www.zhihu.com/question/350099381/answer/1999502467029816167)
 * [人生开窍太晚，会出现什么结果？ - 懂升学的靓靓的回答 - 知乎](https://www.zhihu.com/question/350099381/answer/1998737774107456400)
 * [为什么说现在的年轻人越来越清醒了？ - 风林说的回答 - 知乎](https://www.zhihu.com/question/615418992/answer/1964864449023288042)
@@ -17,10 +18,10 @@
 * [上流社会不愿透露的30个社会真相 - greenrabit的文章 - 知乎](https://zhuanlan.zhihu.com/p/2005659730937402345)
 * [空心时代：从Labubu看意义与人生叙事的断裂](https://www.bilibili.com/video/BV1gtzSBRE1s)
 * [查理·芒格的智慧：我曾说“分享欲是贫穷的开始”，为何现在还要喋喋不休？（智慧悖论）](https://www.bilibili.com/video/BV1x26jB4Eoi/)
+* [为什么老一辈的人似乎更坚韧，而年轻人却更容易陷入抑郁？ - 废姐的回答 - 知乎](https://www.zhihu.com/question/1955589339712042858/answer/1992197215993758781)
 * 互联网已经将绝大部分信息差抹除了，知识已经随处可以获得，为何大部分人依旧无法获得大幅突破？
     * [Thoughts Memo的回答 - 知乎](https://www.zhihu.com/question/689452741/answer/1916097566908610366)
     * [Sigon的回答 - 知乎](https://www.zhihu.com/question/689452741/answer/16289577569)
-* [为什么老一辈的人似乎更坚韧，而年轻人却更容易陷入抑郁？ - 废姐的回答 - 知乎](https://www.zhihu.com/question/1955589339712042858/answer/1992197215993758781)
 * 怎样使自己处于高能量状态？
 * 长期主义能做的事?
 * 英语的重要性，在中国是否被严重高估了？
