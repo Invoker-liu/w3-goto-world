@@ -17,6 +17,8 @@
 * [为什么作家和诗人自杀的比较多呢？ - 减紫的回答 - 知乎](https://www.zhihu.com/question/19913364/answer/2847410917)
 * [上流社会不愿透露的30个社会真相 - greenrabit的文章 - 知乎](https://zhuanlan.zhihu.com/p/2005659730937402345)
 * [空心时代：从Labubu看意义与人生叙事的断裂](https://www.bilibili.com/video/BV1gtzSBRE1s)
+* [中国教育中最隐蔽、也最具破坏性的伤害：制度性人格剥夺 - 乐乐石的文章 - 知乎](https://zhuanlan.zhihu.com/p/2000126377677054450)
+* [中式教育有哪些让你不理解的东西？ - 滴滴不睡觉的回答 - 知乎](https://www.zhihu.com/question/1922300124182320354/answer/1970875335231935309)
 * [查理·芒格的智慧：我曾说“分享欲是贫穷的开始”，为何现在还要喋喋不休？（智慧悖论）](https://www.bilibili.com/video/BV1x26jB4Eoi/)
 * [为什么老一辈的人似乎更坚韧，而年轻人却更容易陷入抑郁？ - 废姐的回答 - 知乎](https://www.zhihu.com/question/1955589339712042858/answer/1992197215993758781)
 * [很多年轻人明知去大城市没前途，为什么还要去？ - 0x55AA的回答 - 知乎](https://www.zhihu.com/question/457100446/answer/2005702628487737681)
