@@ -1,3 +1,6 @@
+要是能做到 [司马懿](https://www.zhihu.com/question/650164682/answer/3509296038)、[钟会](https://www.zhihu.com/question/47624829/answer/292509525)、[徐阶](https://www.zhihu.com/question/32297808/answer/131411712)、[胡适](https://www.zhihu.com/question/14706795197/answer/1894085496503768383) 这种程度，那也无憾了。
+
+
 ---
 
 
