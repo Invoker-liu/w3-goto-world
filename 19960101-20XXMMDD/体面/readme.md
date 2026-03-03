@@ -25,3 +25,10 @@
 * [如何应对一群 13 - 18 岁的街头小混混的挑衅？ - 小狗丢丢的回答 - 知乎](https://www.zhihu.com/question/23585788/answer/25057683) （养条凶的狗）
 
 
+---
+
+只觉离奇，个人理解不到，没看出其他的意义，其他人可以懂一些
+
+* [为什么如今中国依然很多骗子？ - 知乎](https://www.zhihu.com/question/299513140)
+* [你做过最阴暗最龌龊的事是什么？ - 知乎](https://www.zhihu.com/question/47085653)
+* [有哪些你只能匿名说出来的秘密？  - 知乎](https://www.zhihu.com/question/265583638/answer/777715087)
