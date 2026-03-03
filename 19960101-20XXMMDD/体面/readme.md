@@ -19,6 +19,7 @@
 
 [ACADEMIC HUB - 解析青少年犯罪率高峰之現象：「低自我控制」「與成熟代溝」之再議 (國立政治大學)](https://ah.lib.nccu.edu.tw/item?item_id=94612&locale=zh_TW) （在线阅读）
 
+* [校园里的小混混都干过什么令人震惊的事？ -知乎](https://www.zhihu.com/question/332370202)
 * [为什么别人一眼就知道你是老实人? - 内维尔的回答 - 知乎](https://www.zhihu.com/question/644979426/answer/1958993318189957780)
 * [为什么公司裁员最先裁的都是认真工作的老实人？ - 漂浮的扎莱的回答 - 知乎](https://www.zhihu.com/question/1911554761485948556/answer/1985096278758143397)
 * [如何应对一群 13 - 18 岁的街头小混混的挑衅？ - 知乎](https://www.zhihu.com/question/23585788/answer/25095460) （油滑不让对方摸底）
@@ -32,3 +33,4 @@
 * [为什么如今中国依然很多骗子？ - 知乎](https://www.zhihu.com/question/299513140)
 * [你做过最阴暗最龌龊的事是什么？ - 知乎](https://www.zhihu.com/question/47085653)
 * [有哪些你只能匿名说出来的秘密？  - 知乎](https://www.zhihu.com/question/265583638/answer/777715087)
+* [为什么中国的“巨婴”，一到国外就通情达理？ - 知乎](https://www.zhihu.com/question/589912672)
