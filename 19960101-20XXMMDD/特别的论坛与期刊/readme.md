@@ -7,7 +7,7 @@
 * [前进社区 valuediscovering](https://www.valuediscovering.com/)
 * [3Y论坛](https://www.3ylt.xyz/)
 * https://2libra.com
-* https://www.moltbook.com
+* https://www.moltbook.com (纯AI无人类问答)
 
 [如何评价《SHIT》（中文名《构石》）期刊？ - 荀株洲的回答 - 知乎](https://www.zhihu.com/question/2010343786287486020/answer/2013101874002285921)
 
