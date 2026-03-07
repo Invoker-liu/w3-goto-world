@@ -3,6 +3,7 @@
 
 
 * [是什么让你感到人和畜生没有区别？ - 墨苍离的回答 - 知乎](https://www.zhihu.com/question/298054310/answer/1982084762869994423)
+* [为什么说劳动是第一需要，人却更喜欢不劳而获？ - 夏清侯的回答 - 知乎](https://www.zhihu.com/question/1950514346598862905/answer/2001783732928017609)
 * [人会因欢愉而产生“成瘾行为”吗？ - unclean的回答 - 知乎](https://www.zhihu.com/question/1903453201614746761/answer/2012834631284703458)
 * [为什么说一个家族想要跨越阶层，往往需要“献祭”一代人？ - 紫言紫语杂谈的文章 - 知乎](https://zhuanlan.zhihu.com/p/1995314732136146117)
 * [为什么这波 AI 浪潮没有带来大量的就业岗位? - 跑酱er的回答 - 知乎](https://www.zhihu.com/question/649006814/answer/1991292888743696347)
@@ -17,6 +18,7 @@
 * [上面本意是好的，只是下面人执行出错了。这句话有道理吗？ - 马修的回答 - 知乎](https://www.zhihu.com/question/1982793996909708388/answer/1989199661177792204)
 * [上班要有的心眼子 - 言西轻创的文章 - 知乎](https://zhuanlan.zhihu.com/p/1949173488465188069)
 * [階級世代：窮小孩與富小孩的機會不平等](https://zh.z-library.sk/book/0vpx14Nnvr/%E9%9A%8E%E7%B4%9A%E4%B8%96%E4%BB%A3%E7%AA%AE%E5%B0%8F%E5%AD%A9%E8%88%87%E5%AF%8C%E5%B0%8F%E5%AD%A9%E7%9A%84%E6%A9%9F%E6%9C%83%E4%B8%8D%E5%B9%B3%E7%AD%89-our-kids-the-american-dream-in-crisis.html)
+* [为什么很多大公司重视第一学历？ - 刘明哲的回答 - 知乎](https://www.zhihu.com/question/10499466615/answer/1945413889064957514)
 * [中国婚姻正在坍塌：不是男女问题，而是阶层战争 - Laurence的文章 - 知乎](https://zhuanlan.zhihu.com/p/1974185537385542673)
 * [为什么当代年轻人如此渴望“重开人生”？ - 李文卓宇的文章 - 知乎](https://zhuanlan.zhihu.com/p/1998505988517565523)
 * [为什么大部分老实人改不掉反应慢的毛病，被欺辱了不会当场反击，只会事后记仇？ - 设置信息的回答 - 知乎](https://www.zhihu.com/question/9967937857/answer/1906295367013740588)
