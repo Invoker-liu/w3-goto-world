@@ -8,3 +8,7 @@
 * [作为一名教师，感觉工作晋级无望该怎么调整心态？ - 铁芒萁的研习社的回答 - 知乎](https://www.zhihu.com/question/7068525365/answer/2007013701887219539)
 * [教师的真正本领是传授知识，还是唤醒学生的求知欲望？ - 实事求是的回答 - 知乎](https://www.zhihu.com/question/6103152781/answer/51229372327)
 * [BILIBILI - 2025高考 为啥大家反应冷淡的出奇](https://www.bilibili.com/video/BV17FFNzZEWD/)
+* [货车司机缺口1000万，90后、00后为什么不愿意开货车？ - 青山布衣的回答 - 知乎](https://www.zhihu.com/question/608638288/answer/1996644388353378084)
+* [货车司机缺口1000万，90后、00后为什么不愿意开货车？ - 亓林的回答 - 知乎](https://www.zhihu.com/question/608638288/answer/1996173501640504960)
+* [成年人都有哪些试探人的手段？ - 胆小男孩做大事的回答 - 知乎](https://www.zhihu.com/question/310292079/answer/3057889862)
+* [撒贝宁是怎么被保送的北京大学的呢？ - 随风过往的回答 - 知乎](https://www.zhihu.com/question/315581082/answer/113390959701)
