@@ -39,3 +39,4 @@
 
 * [什么时候你意识到自己该辞职了? - 起凡的回答 - 知乎](https://www.zhihu.com/question/9168806770/answer/1964285724544196884)
 * [一个人离职前有什么征兆？ - jason wang的回答 - 知乎](https://www.zhihu.com/question/486792072/answer/3105440854)
+* [一个公司老板经常对员工说：「我用你你就是人才，不用你你啥也不是。」这样对待的人才的观点对吗？ - 乔木的回答 - 知乎](https://www.zhihu.com/question/659627900/answer/56900882022)
