@@ -17,5 +17,6 @@
 * [有哪些剧情发生巨大反转，并引起网络舆论热议的大事件？ - 北风的回答 - 知乎](https://www.zhihu.com/question/66044249/answer/1956712442483671757)
 * [为什么人年纪越大对很多事都提不起兴趣了? - 名字的回答 - 知乎](https://www.zhihu.com/question/378449406/answer/2014366457312617101)
 * [知乎和小红书有哪些区别？ - 珞珞如石的回答 - 知乎](https://www.zhihu.com/question/343544428/answer/1895873859460260598)
+* [美国华裔教授专家网 - 为什么有些人对科学研究的预判能力这么强？](http://scholarsupdate.hi2net.com/news.asp?NewsID=36726)
 
 
