@@ -52,6 +52,7 @@
 
 * [怎样看待”《自然》子刊刊发新奥聚变重要研究成果“？ - asdf-quark的回答 - 知乎](https://www.zhihu.com/question/2010999919801029894/answer/2011458754911154245)
   * [BILIBILI - 【采风】网友自创搞笑期刊 包括Call、Notrue等 内容有趣值得一看](https://www.bilibili.com/video/BV1oPPuzLEBD)
+* [BILIBILI -【采风】减肥药新格局——司美和替尔泊肽](https://www.bilibili.com/video/BV1zGc6z8Ewr)
 * [贾国龙为什么就过不去这个事儿了呢？ - 天海的回答 - 知乎](https://www.zhihu.com/question/1995553043710776832/answer/2000639056112029719)
 * [网红猫一杯的事情为什么这么严重？ - Kkkkk的回答 - 知乎](https://www.zhihu.com/question/652851601/answer/118930289159)
 * [如何评价“年纪轻轻看什么南明史”？ - 知乎](https://www.bilibili.com/video/BV1PAP6zEE2C)
