@@ -34,6 +34,7 @@
 * http://other.caixin.com/e_newsletter/?id=1&email= 财新订阅
 * https://aeon.co/ 英语社会读物杂志
 * https://www.cna.com.tw 中央社新闻订阅（台湾）
+* https://research.sinica.edu.tw 中央研究院·研之有物（台湾）
 * https://freewarehome.tw 免费软件订阅 （台湾）
 * https://www.todayonline.com 新加坡今日报订阅
 * https://docs.rsshub.app 各种订阅源
@@ -42,6 +43,7 @@
 * https://github.com/hehonghui/awesome-english-ebooks 经济学人、纽约客等英语外刊杂志下载
 * https://www.laodongqushi.com 中国劳动趋势
 * https://sunrisemedium.com 旭时报
+
 
 ### TG
 
