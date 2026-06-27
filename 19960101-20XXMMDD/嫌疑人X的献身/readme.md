@@ -8,6 +8,7 @@
 [犯罪学入门应该看什么书？ - 盛夏的回答 - 知乎](https://www.zhihu.com/question/20040019/answer/1247666210)
 
 * [如何看待邢台一女子撞倒老人后下车狠踹其头部，该女司机或将承担什么责任？ - bighood的回答 - 知乎](https://www.zhihu.com/question/2045199276695934209/answer/2045814980994455365)
+* [如何看待开店博主「勇哥餐饮创业说」由于直播间被判定违规，对线短视频平台客服被挂断电话？ - 知乎](https://www.zhihu.com/question/2054090943784133053)
 * [为什么感觉电诈怎么查都查不干净啊? - 知乎](https://www.zhihu.com/question/14661635845)
 * [为什么广西盛产鬼火少年? - 知乎](https://www.zhihu.com/question/328011093)
 * [深圳女子捉弄残疾老人踢走其拐杖，如何看待这一行为？ - 浩浩妈咪的回答 - 知乎](https://www.zhihu.com/question/542659734/answer/2572152999)
